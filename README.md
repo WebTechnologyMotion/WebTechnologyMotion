@@ -26,7 +26,7 @@ Nuestra experiencia radica en la elaboración de sitios web responsive y fácile
 
 ¿Listo para elevar tu presencia online? ¡Contáctanos al instante para un presupuesto gratuito!
 
-**Email:** webtechnologymotion@gmail.com
+**Email:** contacto@webtechnologymotion.com
 
 ---
 
